@@ -1,2 +1,3 @@
-# uh
-why did i make this
+# hi
+I'm Fakeberg. I created Shifted Courses.
+Nothing much to say as for now
